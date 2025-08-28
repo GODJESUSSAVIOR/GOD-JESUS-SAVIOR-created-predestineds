@@ -2,7 +2,7 @@ GOD JESUS SAVIOR created predestined my character spirit is = super melancholic 
 
 super melancholic 70% = super perfectionist want all must perfect
 
-but because in this world all not perfect
+but in this world all not perfect
 
 that cause humans who predestineds characters spirits super choleric super melancholic super perfectionist will very feeling very dislike very disappointed very sad very angry to all things which are not perfect
 
